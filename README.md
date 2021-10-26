@@ -1,2 +1,2 @@
 # hello-world
-Nutha day, nutha dolla
+Ya I'm pretty much the best ;)
